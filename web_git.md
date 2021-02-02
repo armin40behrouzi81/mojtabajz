@@ -8,13 +8,13 @@
 
 ## Skills
 ---------------------------
-+ Programming
++ Porn
 + Gaming
 + Guitar
 
 ## Favorite
 ----------------------------
-+ Programing
++ Porn
 + Play games
 + Music
 + Play tennis
